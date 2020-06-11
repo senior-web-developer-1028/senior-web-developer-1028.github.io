@@ -1,1 +1,1 @@
-# Takeo Fukuda
+# Thinker
